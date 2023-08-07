@@ -1,4 +1,4 @@
-## Jesus does not write books to tell tales of his sacrificial nature.
+## Jesus does not write books to tell tales of his sacrificial nature
 
 The Jesus I follow recognises the nature of unduly imparted suffering. 
 
