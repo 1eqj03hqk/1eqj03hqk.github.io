@@ -34,7 +34,7 @@ Edit 11/08/2023:
 > *In the remnants of dreams,  
 > Your fits of weeping  
 > can’t escape your mouth  
-> They resound in a corner of the garden  
+> They resound in a corner of the garden of bubbles 
 > On the sky of swimming lights  
 > In the interior of letters  
 > In the interval between the waves*  
