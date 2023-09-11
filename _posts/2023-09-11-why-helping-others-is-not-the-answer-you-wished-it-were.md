@@ -4,9 +4,12 @@ You see, people are building themselves - like builders building houses. Builder
 
 Many who wish to find and help others are actually wishing to find a shared experience with others who've endured in the same novel pain - and in turn help themselves. In pursuit of a dream that there exists some puritanical symbiotic partnership with another creature who's been wounded as they have.
 
-If my cells truly wish to help, they should completely enslave themselves in a routine to which I pay no mind and never care to think about.
-If nurses truly wish to help, they will clean up vomit and shit, ignore screams and pleads for lethal doses of morphine and bathe dementia ridden creatures such that they're clean enough to enjoy another day of delirious confusion, loneliness and pain.
-If vets truly wish to help, they will put penelope down.
+ - If my cells truly wish to help, they should completely enslave themselves in a routine to which I pay no mind and never care to think about.  
+
+ - If nurses truly wish to help, they should clean up vomit and shit, ignore screams and pleads for lethal doses of morphine and bathe dementia ridden creatures such that they're clean enough to enjoy another day of delirious confusion, loneliness and pain.  
+
+ - If vets truly wish to help, they should put penelope down.  
+
 
 Even those aware of the costs tend to find themselves apathetic to the cause. Why? Fighting against harsh predicaments requires becoming a good fighter. Becoming a good fighter requires apathy to harsh predicaments (lol).
 
