@@ -1,4 +1,4 @@
-# Why is helping others not the answer you wished it were?
+# Why helping others is not the answer you wished it were
 
 You see, people are building themselves - like builders building houses. Builders don't want material that's already been molded into something. They wish for the most basic of elements to use as building blocks. 
 
